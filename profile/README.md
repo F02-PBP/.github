@@ -2,4 +2,4 @@
 Selamat datang di repositori kelompok F02 ^___^
 
   1. **Grace Karina - 2306275834**
-  2. lanjutin ya guys
+  2. **Claudia Paskalia Koesno -2306275355**
